@@ -1,0 +1,1 @@
+Proszę wrzucić tutaj wszystkie pliki smart.
